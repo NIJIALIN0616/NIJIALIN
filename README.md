@@ -1,0 +1,2 @@
+# NIJIALIN
+start to learn
